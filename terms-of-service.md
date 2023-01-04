@@ -1,5 +1,5 @@
-Terms of Service
-Updated January 3, 2022
+Terms of Service  
+Updated January 3, 2023
 
 # Introduction
 
